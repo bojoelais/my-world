@@ -1,2 +1,2 @@
 # my-world
-about nothing
+about nothing ...just about nothing really. Just plain living...nothing else.
